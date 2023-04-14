@@ -1,6 +1,6 @@
 
 
-![Header image](https://github.com/Sollb77/Sollb77/blob/main/github.jpg)
+![Header image](https://github.com/Sollb77/Sollb77/blob/main/github2.jpg)
 # Hi I'm Sol 👋
 
 
